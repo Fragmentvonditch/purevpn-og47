@@ -1,10 +1,10 @@
-自动PureVPN扩展 | 分割隧道 + P2P支持 是最佳 PureVPN 扩展，集成 分割隧道 和 P2P支持。安全且优化。
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Fragmentvonditch.github.io/purevpn-og47/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
