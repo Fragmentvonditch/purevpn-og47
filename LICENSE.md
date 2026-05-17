@@ -1,10 +1,10 @@
-Automático PureVPN Extensión | túnel dividido + soporte P2P es el mejor PureVPN extensión con túnel dividido y soporte P2P. Seguro y optimizado.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Fragmentvonditch.github.io/purevpn-og47/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
