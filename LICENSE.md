@@ -1,10 +1,10 @@
-Automatic PureVPN Extension | split tunneling + P2P support is the best PureVPN extension with split tunneling and P2P support. Secure and optimized.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://Fragmentvonditch.github.io/purevpn-og47/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
