@@ -1,4 +1,4 @@
-
+Automático PureVPN Extensão | túnel dividido + suporte P2P é o melhor PureVPN extensão com túnel dividido e suporte P2P. Seguro e otimizado.
 
 
 
