@@ -1,10 +1,10 @@
-آلي PureVPN امتداد | النفق المنفصل + دعم P2P هو أفضل PureVPN امتداد مع النفق المنفصل و دعم P2P. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://Fragmentvonditch.github.io/purevpn-og47/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
